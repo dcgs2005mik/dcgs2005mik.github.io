@@ -8,7 +8,9 @@ I believe that a hybrid between a badger and a cat would benefit society in an x
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+I mean turtledogs could work too
+
+LEL!!!!!
 
 ### Contact me
 
