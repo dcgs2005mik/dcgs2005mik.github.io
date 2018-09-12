@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+I believe that a hybrid between a badger and a cat would benefit society in an xtremely positive way!
 
 ### More Information
 
